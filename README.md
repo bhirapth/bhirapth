@@ -1,1 +1,1 @@
-Serve For People.
+Serve the people.
